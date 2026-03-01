@@ -6,6 +6,7 @@ I'm a Biochemist & Certified Medical Scientist who takes on complex problems tha
 ## Track Record
 
 **Led the Grassroots Movement that Blocked Mike Pence's $4 Billion Port Megaproject that was Concealing Groundwater Contamination in my Hometown**
+
 Conducted independent investigation and identified undisclosed environmental contamination, educated the public on groundwater impacts, and advocated for accountability
 Conducted independent investigation into financial motivations for officials to advocate moving forward despite the risks, and presented evidence to Indianapolis FBI Field Office
 The project was withdrawn, and the utility director was charged on almost 20 felony charges, including RICO
